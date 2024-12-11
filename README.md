@@ -8,4 +8,4 @@ ANGGOTA :
     Rima Maharani Lubis 231401015
     Salwa Faizah Anindya 231401009
 
-Link Video Drive: [Klik di sini untuk menonton](https://youtu.be/xORgdSQDx1Q)
+Link Video Drive: [Klik di Sini Untuk Menonton](https://youtu.be/xORgdSQDx1Q)
